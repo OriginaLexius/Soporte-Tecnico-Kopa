@@ -1,1 +1,0 @@
-# Tecnico-Kopa
